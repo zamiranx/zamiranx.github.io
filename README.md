@@ -1,0 +1,1 @@
+# zamiranx.github.io
